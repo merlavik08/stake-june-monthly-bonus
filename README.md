@@ -1,7 +1,7 @@
 # 📌 **Stake June Monthly Bonus: Maximize Your Earnings with 3.5x Deposit Bonus (No Wagering Required)**
 
 ## 🔍 Introduction
-[![Stake June Monthly Bonus](https://github.com/merlavik08/stake-june-monthly-bonus/blob/main/Stake.png)](https://t.me/PromoStakeBot) 
+[![Stake June Monthly Bonus](https://github.com/merlavik08/stake-june-monthly-bonus/blob/main/04274d5fe2-c327-4cc1-972b-c22dshgh0f6.png)](https://t.me/PromoStakeBot) 
 In the world of **crypto-based platforms**, the term "Stake" has become synonymous with **staking, rewards, and passive income**. However, when it comes to **Stake Casino**, the focus shifts from traditional staking to a more dynamic form of engagement—**bonus opportunities, instant withdrawals, and high-value deposit bonuses**.
 
 This guide is titled **"Stake June Monthly Bonus"** and is specifically tailored for users interested in taking advantage of the **3.5x deposit bonus** offered by Stake Casino during the month of **June**. With **no wager requirements**, this is one of the most attractive promotions available in the crypto gambling space.
